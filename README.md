@@ -1,2 +1,2 @@
 # Tema12
-Lucru pentru acasa, tela 12
+Lucru pentru acasa, tema 12
